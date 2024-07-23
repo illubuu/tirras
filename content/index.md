@@ -1,4 +1,7 @@
 ---
 title: Welcome to Tirras Savehys
 ---
-Welcome to Tirras
+Welcome to Tirras Savehys
+[[Characters]]
+[[Gods]]
+[[World]]
