@@ -1,0 +1,1 @@
+Demigods are an ancient term for the very rare occurance of an individual having a child with a God. 

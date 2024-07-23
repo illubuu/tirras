@@ -1,0 +1,4 @@
+The Chitin are the insect/arachnid race and the most diverse of all the races with over 500 different manifestations of their appearance. They are considered some of the most distinguished in their appearance compared to other races. And while they do have a very different look, they are still able to reproduce with the other races. Depending on their biology, Chitin live in most any region, save for the ice polar regions, but are most common in the [[World Notes/Places/World Locations/Regions/Burnt Lands|Burnt Lands]] and [[Tzk Tzyl]]. 
+
+Culturally, most Chitin dislike being compared to or associated with actual bugs. (Some of them are even afraid of them!) This usually manifests such as people being afraid to kill a bug while in Chitin company. Many would see this as ridiculous at best, and downright rude at worst.
+

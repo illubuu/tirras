@@ -1,0 +1,3 @@
+This plane is home to the [[seraphim]], created after the banishing of the [[Essence of Four#Archdevils|Archdevils]]. There was a need to keep balance after the creation of the [[Lower Planes]], to remove the influence of the seraphim from the Physical Plane. 
+
+It is structured like a city, with districts for each of the four [[Essence of Four#Grand Seraphim|Grand Seraphim]]. It is from this location that the [[Seraphim#Guardians|Guardian Seraphim]] communicate with their charges. While travel between the Celestralarium and Physical Plane is possible, it is very rare.

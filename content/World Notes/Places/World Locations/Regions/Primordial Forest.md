@@ -1,0 +1,3 @@
+The Primordial Forest is considered to be the oldest land in the world of Tirras Savehys. It has been utterly untouched, save for the singular research base of Metaton on its southern shore. Even the Gods are unable to interfere with the forest and are unaware of what - if anything - exists there. The [[Dragons]] and [[Fae]] claim to know nothing about it, and advise avoiding it.
+
+It is actually the 'Garden of Eden' where the [[The Primordials]] first landed on the physical world. 

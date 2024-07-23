@@ -1,0 +1,1 @@
+The Starling Sea is the body of water the extends between the eastern edge of the [[Kurbn Peninsula]] and the [[World Notes/Places/World Locations/Regions/Burnt Lands|Burnt Lands]] to the western edge of the [[Ancient Kingdom]]. 

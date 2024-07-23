@@ -1,0 +1,3 @@
+This is the plane where all Gods exist, from the [[The Council|Nine]] down to the smallest of [[The Council#Lesser Gods|lesser Gods]]. It is set up like a web off webs, centering on the world's of the Nine and branching off in threads to the lesser ones (which is thus structured based on which of the Nine the lesser Gods choose to align themselves with). 
+
+Mortals typically never interact with the Astral Plane as the separation between this plane and the Physical Plane is strict, such that even Gods cannot interact with the Physical Plane without an 'avatar' or 'vessel'.

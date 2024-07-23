@@ -1,0 +1,1 @@
+Spigots are the scholarly term for specific geographical locations that hold specific and uniquely powerful magic, each of which seem to align themselves with one of the [[Magic Disciplines]]. They do not follow any rule of similarity, outside of being magical manifestations of nature - being forests, lakes, etc. 

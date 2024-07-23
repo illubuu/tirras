@@ -1,0 +1,1 @@
+Yar'dsesin is a lesser God who covers the realms of Flowing Water. He sits beneath the jurisdiction of [[Aarmaen]].  

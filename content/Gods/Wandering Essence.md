@@ -1,0 +1,3 @@
+Wandering Essences are the barest form of beings that once walked the lands. Like stars long past their prime, they are the simplest forms of coalesced energy with no purpose and no thoughts. They can be seen as floating orbs of colored light they will occasionally follow moving objects, but quickly lose interest. 
+
+After [[The Splintering|the Splintering]], the [[Essence of Four#Grand Seraphim|Grand Seraphim]] turned the [[Essence of Four#Archdevils|Archdevils]] into these, to keep them from ever returning from the [[Lower Planes]].

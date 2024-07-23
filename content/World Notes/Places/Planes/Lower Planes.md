@@ -1,0 +1,7 @@
+The Lower Planes, known more colloquially as the Lyzsn Fires (the lyzsn or 'fires'), is the land of the [[Devils]]. Stripped from the Circle by [[The Primordials|the Primordials]] as a place 'detached from the world proper', it was originally intended as a place for them to build the world without impacting that which they had already created. However, after the Descent, the Lower Planes became a casting grounds for the Celestials for the invalid and imperfect, that which threatened the balance of life within the other planes (namely the Physical Plane).
+
+While the lands within the Lower Planes are unique to each devil that inhabits it, there are a number a share characteristics between them, namely the flame that appears all throughout and is unique to the plane itself.
+
+### Lyzsn Fire
+
+Lyzsn Fire is a type of fire that only appears on the Lower Planes, and is separate from the fire and flame that appears on the other planes that occupy the world. Labeled a 'governed flame' by [[The Council|the Nine]], the lyzsn fire has a sentient malevolence that it carries within it. Unlike the 'formless fire' of [[Idallouse]] that acts as a part of cycle of renewal, this fire wishes to consume and never return. It is unique to [[Devils]] and those pacted with them. In some reported cases, the flame acts almost as a sickness, spreading its ceaseless hunger to those it encounters.

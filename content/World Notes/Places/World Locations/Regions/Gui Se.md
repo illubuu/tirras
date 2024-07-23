@@ -1,0 +1,1 @@
+Gui Se is an island nation, just off the coast of [[Shur Sha Shu]] and [[Dian Pohnas]]. 

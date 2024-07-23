@@ -1,0 +1,1 @@
+The Chichee are the feline race that are known to be the frequent circus and acrobat show performers. They, with the [[Dnoden]], are considered "tether races", in that they share cultural aspects, traditions, and celebrations. Their spigot is the [[Dies Lin Du Forest]]. 

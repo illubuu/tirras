@@ -1,0 +1,3 @@
+The Teeypen are the avian race of Tirras Savehys, and are among the most widespread races, found in almost every region and biome. While their type may vary, the race itself is prolific. The loose typing of the Teeypen include: **songbirds**, **seabirds**, **raptors**, and **ice birds**. However, all Teeypen are compatible with each other, and some choose not to distinguish themselves at all from one another. 
+
+Most Teeypen can be found where their biology comes most in handy, but it is not a hard and fast rule. Because of their expansive regions, all kinds of Teeypen live everywhere and have adjusted to life in every region. 

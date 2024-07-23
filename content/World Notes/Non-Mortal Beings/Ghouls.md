@@ -1,0 +1,3 @@
+Ghouls are beings with bodies and a spirit, but no soul. They are both a naturally occurring phenomena, as well as a created one through acts of necromancy. 
+
+When a spirit is trapped in the [[The Overlay|Overlay]], it can occasionally find itself an uninhabited body (sometimes their own) which they then take over. This can only occur with a body that has been properly bled out according to Styvel's rituals, completely removing the influence of the soul upon a body. Necromancy can also create the proper conditions for this phenomena. 

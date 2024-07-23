@@ -1,0 +1,1 @@
+Anvillin is a northeastern island, above the Eastern Continent. It is mostly deserted, sparsely inhabited by only a few animals species, the two research stations at Darllion Port and Fort Lore, and a few [[Fae]] homesteads of Carhon, Fisn, and White Cap. 

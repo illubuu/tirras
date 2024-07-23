@@ -1,0 +1,1 @@
+The Dies Lin Du Forest is a large expanse of trees located in [[Shur Sha Shu]]. It is the [[Magic Disciplines#Necromancy|Spigot of Necromancy]], as it is one of the most active areas of naturally occurring necromancy in the world.

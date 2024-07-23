@@ -1,0 +1,3 @@
+The signature weapon of [[Essence of Four#Archdevils#Pestilence|Dorthal, third Archdevil, the Plague Prince]].
+
+A wrought metal bow that seems to eternally weep a dark grey fog. The drawstring appears to be made of a similar material, made more solid, and that allows for multiple arrows to be fired at once. Each projectile shot from this bow carries with it that such fog, spreading a sticky cloud of a sickly plague wherever it touches. 

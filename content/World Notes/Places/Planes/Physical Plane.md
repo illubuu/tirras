@@ -1,0 +1,3 @@
+The Physical Plane is that which every mortal being is born, lives, and dies. It is the largest of the planes, and the most magical. This is the only place where [[Spigots]] appear, which are believed to be the source of all magic. 
+
+There is also the prevailing belief that the Material Plane is the 'anchor plane' to which the other planes attach. While all beings (save for the [[The Primordials|Primordials]]) were created on the Physical Plane, not all currently inhabit it. As such, it is also seen at the 'parent' plane. 

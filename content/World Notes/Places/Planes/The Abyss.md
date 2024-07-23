@@ -1,0 +1,1 @@
+The Abyss is the realm within which the [[The Primordials#The Void|Void]] currently resides, watching over the Loom and ensuring balance as the world moves forwards in time.

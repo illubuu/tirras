@@ -1,0 +1,1 @@
+Laissen are a race of mortals born from the [[Dragons]] after the [[The Splintering|Splintering]]. They are the only new race not born from a spigot. 
