@@ -1,7 +1,13 @@
 Here is a list of all characters in the various tales from Tirras Savehys:
+## Twisted Threads
+- [[Mintly]]
+- [[Helian]]
 
-## Books 1
-[[Mintly]]
-[[Helian]]
-[[Heskur]]
-[[Ingrid]]
+## Cat
+- [[Myrastanses]]
+- [[Helse]]
+
+## Beyond the Books
+- [[S. C. Frey]]
+- [[Birinder Bane]]
+- 

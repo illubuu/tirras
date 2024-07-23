@@ -1,1 +1,1 @@
-S.C. Frey is a 
+S.C. Frey is the author behind numerous novels published in Tirras Savehys.
