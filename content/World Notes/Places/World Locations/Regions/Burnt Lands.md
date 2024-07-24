@@ -1,4 +1,4 @@
-The Burnt Lands are a mostly desolate land with five city-states across the desert landscape. It is also a [[World Notes/Spigots/Burnt Lands|Spigot]], a location of highly concentrated magic. 
+The Burnt Lands are a mostly desolate land desert with five city-states across the desert landscape. It is also a [[World Notes/Spigots/Burnt Lands|Spigot]], a location of highly concentrated magic. 
 
 ## Culture
 

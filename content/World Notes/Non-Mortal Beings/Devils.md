@@ -1,5 +1,4 @@
 Devils are the beings born from the spilled blood of the destroyed [[Essence of Four#Archdevils|Archdevils]] (as opposed to the [[Laissen]], who are the mortal children of [[Dragons]]). Each Devil represents an aspect that then falls under one of the four domains represented by the Archdevils. This is not something that is chosen by the Devil, rather it is innate, something they are born with.
-
 ## Notable Devils
 
 ### Rorsath

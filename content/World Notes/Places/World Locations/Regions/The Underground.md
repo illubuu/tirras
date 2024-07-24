@@ -1,8 +1,4 @@
-
-
+The Underground is the home and motherland of the [[Oudinnen]]. Little is known about the Underground by those on the surface, as most of it is heard secondhand by few who have come into contact with its elusive, cool skinned denizens.
 ## Capital City
 
-Has'jhinse is the capital city of the Underground
-
-### Plelshen Palace
-Plelshen Palace in the home to the Ashnetaniss and is one of the oldest buildings in the city. Built over the course of two hundred years after the [[Great Catastrophe]], it is located in the ruins of an old port used by the Neorn to transport goods to the main land and avoid the frequent storms over the [[Starling Sea]].
+Has'jhinse is the known capital city of the Underground. It is said to be built entirely of black glass that flows like syrup but is solid as stone, reflecting the false night sky, and sparkling like sunlight over sea water. 

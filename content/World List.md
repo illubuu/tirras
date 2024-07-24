@@ -1,10 +1,28 @@
-Here is a list of all the different locations - from locations within Tirras Savehys to the outer planes that exist beyond the ground
+There are a number of regions located within Tirras Savehys, as well as multiple planes of existence.
 
-## Physical Plane Locations:
+## Regions of Tirras Savehys:
 
-[[Kisnicanzadantis]]
+- [[Ancient Kingdom]]
+- [[Anvillin]]
+- [[Burnt Lands]]
+- [[Dian Pohnas]]
+- [[Gui Se]]
+- [[Kisnicanzadantis]]
+- [[Kurbn Peninsula]]
+- [[Middle Grounds]]
+- [[Primordial Forest]]
+- [[Shur Sha Shu]]
+- [[The Great Plains]]
+- [[The Underground]]
+- [[Tzk Tzyl]]
+- [[Winter Woodlands]]
 
-## Planes of Existence:
+## Known Planes of Existence:
 
-[[Astral Plane]]
-[[Lower Planes]]
+- [[Astral Plane]]
+- [[Celestralarium]]
+- [[Echo Lands]]
+- [[Lower Planes]]
+- [[Physical Plane]]
+- [[The Abyss]]
+- [[The Overlay]]
